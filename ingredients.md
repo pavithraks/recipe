@@ -3,3 +3,5 @@
 * 1 tsp salt
 * 1/2 onion
 * 1/2 tbsp coriander
+* 1 chillie
+* must be served cold
